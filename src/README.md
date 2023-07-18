@@ -10,5 +10,4 @@ With the strategies and techniques outlined in this book, individuals can develo
 
 This book is for anyone looking to maximize their productivity and achieve their goals, whether they're students, professionals, entrepreneurs, or anyone seeking to take control of their time and live a more fulfilling life. So, let's dive in and explore the power of strategic listing!
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
