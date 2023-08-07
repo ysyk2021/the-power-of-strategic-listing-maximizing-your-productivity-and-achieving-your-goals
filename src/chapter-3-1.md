@@ -1,4 +1,4 @@
-Chapter: The Importance of Assessing Your Current Listing Approach when Seeking to Maximize Productivity and Achieve Goals
+The Importance of Assessing Your Current Listing Approach when Seeking to Maximize Productivity and Achieve Goals
 ==========================================================================================================================
 
 Introduction

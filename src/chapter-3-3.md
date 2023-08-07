@@ -1,4 +1,4 @@
-Chapter: The Importance of a Strategic Listing Framework in Maximizing Productivity and Achieving Goals
+The Importance of a Strategic Listing Framework in Maximizing Productivity and Achieving Goals
 =======================================================================================================
 
 **Introduction**
