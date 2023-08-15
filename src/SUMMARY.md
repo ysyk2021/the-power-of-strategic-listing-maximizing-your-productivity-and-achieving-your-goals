@@ -3,7 +3,6 @@
 - [Introduction](README.md)
   - [Explanation of the importance of effective listing in achieving success](chapter-1-1.md)
   - [Overview of the benefits of strategic listing principles](chapter-1-2.md)
-  - [Brief on how the book will help readers develop a mindset towards maximizing productivity and achieving their goals through strategic listing](chapter-1-3.md)
 - [Chapter 1: Understanding Strategic Listing](chapter-2.md)
   - [Understanding what strategic listing means for achieving success](chapter-2-1.md)
   - [Techniques for cultivating a mindset towards strategic listing](chapter-2-2.md)

@@ -1,11 +1,7 @@
 Chapter 7: Celebrating Success and Sustaining Progress
 ======================================================
 
-In this chapter, we will explore the importance of celebrating success and sustaining progress in the strategic listing process. Celebrating success and recognizing progress is an important component of staying motivated and achieving long-term goals. Specifically, we'll cover:
-
-* The importance of celebrating success in the strategic listing process
-* Techniques for recognizing progress and achievement along the way
-* Strategies for sustaining momentum and building on past successes
+In this chapter, we will explore the importance of celebrating success and sustaining progress in the strategic listing process. Celebrating success and recognizing progress is an important component of staying motivated and achieving long-term goals.
 
 By incorporating these techniques and strategies into your strategic listing process, you can stay motivated and achieve greater success over the long term.
 

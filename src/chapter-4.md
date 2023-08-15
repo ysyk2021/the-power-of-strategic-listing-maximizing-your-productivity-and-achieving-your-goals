@@ -1,11 +1,7 @@
 Chapter 3: Reimagining Your Relationship with Lists
 ===================================================
 
-In this chapter, we will explore the critical role of developing a positive relationship with lists in maximizing your productivity and achieving your goals. Specifically, we'll cover:
-
-* The role of mindset and perception in strategic listing
-* Techniques for reframing beliefs and attitudes towards lists to promote productivity and goal achievement
-* Strategies for developing a positive relationship with lists that aligns with personal values and vision
+In this chapter, we will explore the critical role of developing a positive relationship with lists in maximizing your productivity and achieving your goals.
 
 By implementing these techniques and strategies, individuals can develop a more positive relationship with their lists, improving their ability to achieve their goals.
 
