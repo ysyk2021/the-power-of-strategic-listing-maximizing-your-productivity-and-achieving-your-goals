@@ -1,5 +1,3 @@
-Chapter 6: Navigating Distractions and Staying Focused
-======================================================
 
 Distractions can negatively impact productivity and hinder progress towards strategic listing goals. This chapter will explore the challenges and distractions that can arise when pursuing strategic listing goals, techniques for managing distractions and staying focused on priority tasks, and strategies for developing effective time-management and concentration techniques.
 

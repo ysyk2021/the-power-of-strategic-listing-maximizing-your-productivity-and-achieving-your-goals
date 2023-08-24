@@ -1,5 +1,3 @@
-Chapter 2: Assessing Your Current Listing Approach
-==================================================
 
 The Importance of Assessing Your Current Listing Approach When Seeking to Maximize Productivity and Achieve Goals
 -----------------------------------------------------------------------------------------------------------------

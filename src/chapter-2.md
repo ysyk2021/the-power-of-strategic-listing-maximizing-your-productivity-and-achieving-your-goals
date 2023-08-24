@@ -1,5 +1,3 @@
-Chapter 1: Understanding Strategic Listing
-==========================================
 
 Strategic listing is a powerful approach to maximizing productivity and achieving goals. This chapter will explore what strategic listing means for achieving success, techniques for cultivating a mindset towards strategic listing, and tips for identifying personal obstacles to effective listing and overcoming them.
 

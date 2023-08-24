@@ -1,5 +1,3 @@
-Techniques for Reframing Beliefs and Attitudes towards Lists to Promote Productivity and Goal Achievement
-==================================================================================================================
 
 In this chapter, we will explore various techniques that can help reframe beliefs and attitudes towards lists in order to enhance productivity and achieve goals. By understanding the power of lists and adopting a positive mindset towards them, individuals can unlock their full potential and streamline their efforts towards success.
 

@@ -1,5 +1,3 @@
-Chapter 5: Leveraging Technology to Enhance Listings
-====================================================
 
 Technology can play a significant role in enhancing strategic listing and maximizing productivity. This chapter will explore the role of technology in enhancing strategic listing, techniques for selecting and using digital tools that support strategic listing goals, and strategies for organizing and managing multiple lists across different platforms.
 

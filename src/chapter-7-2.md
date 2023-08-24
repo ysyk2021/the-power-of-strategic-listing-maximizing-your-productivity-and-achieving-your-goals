@@ -1,5 +1,3 @@
-Techniques for Managing Distractions and Staying Focused on Priority Tasks
-==================================================================================================================================
 
 One of the biggest challenges when pursuing strategic listing goals is dealing with distractions that can derail progress. It's easy to lose focus when faced with social media, emails, meetings, or unexpected events. In this chapter, we explore techniques for managing distractions and staying focused on priority tasks.
 

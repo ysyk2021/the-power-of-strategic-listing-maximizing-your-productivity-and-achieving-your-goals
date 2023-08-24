@@ -1,5 +1,3 @@
-Chapter 3: Reimagining Your Relationship with Lists
-===================================================
 
 In this chapter, we will explore the critical role of developing a positive relationship with lists in maximizing your productivity and achieving your goals.
 
