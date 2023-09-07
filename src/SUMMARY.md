@@ -33,3 +33,4 @@
   - [Strategies for sustaining momentum and building on past successes](chapter-8-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)
